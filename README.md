@@ -1,2 +1,2 @@
 # sdokujin
-https://jillina10043210.github.io/sdokujin/
+https://qj10043210.github.io/sdokujin/
